@@ -37,7 +37,6 @@ I'm not afraid to block you.
 <a href="https://www.chickensmoothie.com/pet/512738780.html"><img src="https://www.chickensmoothie.com/pet/512738780&trans=1.jpg" border=0></a><br><b>Pet's name:</b> Julien <br><a href="https://www.chickensmoothie.com/">Adopt virtual pets at Chicken Smoothie!</a>
 <a href="https://www.chickensmoothie.com/pet/512744603.html"><img src="https://www.chickensmoothie.com/pet/512744603&trans=1.jpg" border=0></a><br><b>Pet's name:</b> Prints <br><a href="https://www.chickensmoothie.com/">Adopt virtual pets at Chicken Smoothie!</a>
 <a href="https://www.chickensmoothie.com/pet/512744567.html"><img src="https://www.chickensmoothie.com/pet/512744567&trans=1.jpg" border=0></a><br><b>Pet's name:</b> Gerguel <br><a href="https://www.chickensmoothie.com/">Adopt virtual pets at Chicken Smoothie!</a>
-<a href="https://www.chickensmoothie.com/pet/512744567.html"><img src="https://www.chickensmoothie.com/pet/512744567&trans=1.jpg" border=0></a><br><b>Pet's name:</b> Gerguel <br><a href="https://www.chickensmoothie.com/">Adopt virtual pets at Chicken Smoothie!</a>
 <a href="https://www.chickensmoothie.com/pet/512744944.html"><img src="https://www.chickensmoothie.com/pet/512744944&trans=1.jpg" border=0></a><br><b>Pet's name:</b> Solar Flare <br><a href="https://www.chickensmoothie.com/">Adopt virtual pets at Chicken Smoothie!</a>
 
 
