@@ -24,7 +24,8 @@ I can be found on Vrchat, I do acting and soundboard Sillyness.
 
 ![gears-steampunk](https://github.com/user-attachments/assets/624bd9e6-6d57-443d-83fa-67aeb8aff845)
 
-BASIC DNI's
+# BASIC DNI's
+
 ![vM1pGHgNcyCXUWJECrZbvn1NMPj1oFGUo3gYfF3NNPRD9WnZvxG1yx24RDsBPPcSs2aN7dsd9tyvWpdfZYarKCMViVNDBQ5J6QMxtCrv4orhsCYndSJMGgqRqMUWtAQ9H2bW1KB](https://github.com/user-attachments/assets/253c7183-d1c7-4180-acac-177d8bd2821f)
 
 Talk to me how you wnat to be treated.
