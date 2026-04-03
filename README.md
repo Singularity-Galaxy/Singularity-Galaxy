@@ -28,7 +28,7 @@ I can be found on Vrchat, I do acting and soundboard Sillyness.
 
 ![vM1pGHgNcyCXUWJECrZbvn1NMPj1oFGUo3gYfF3NNPRD9WnZvxG1yx24RDsBPPcSs2aN7dsd9tyvWpdfZYarKCMViVNDBQ5J6QMxtCrv4orhsCYndSJMGgqRqMUWtAQ9H2bW1KB](https://github.com/user-attachments/assets/253c7183-d1c7-4180-acac-177d8bd2821f)
 
-Talk to me how you wnat to be treated.
+Talk to me how you want to be treated.
 I'm not afraid to block you.
 ![ezgif-29b5281824b9dac1](https://github.com/user-attachments/assets/c541aaa5-9896-43aa-abe0-fce5f9bdb481)
 
