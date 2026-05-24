@@ -18,7 +18,7 @@ You are 100% allowed to friend me!
 ![84253376_JX9BMEDDL4C6O0J](https://github.com/user-attachments/assets/e9bdbb0c-a0cf-4960-a206-8e6e132f3540)
 
 I go mostly by Dyle as it's my actual First name!
-I am a Mod of Cookie Run: KIngdom and Cookie Run: OvenSmash, Frostbitehills is my username on both games. (Hollyberry Server for CRK)
+I am a Ex-Mod of Cookie Run: KIngdom and Cookie Run: OvenSmash, Frostbitehills is my username on both games. (Hollyberry Server for CRK)
 I enjoy Vrchat, Dandy's world, Grace, Minecraft ARGs and The Backrooms!
 I can be found on Vrchat, I do acting and soundboard Sillyness.
 
